@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
+* Something interesting about me is I can run 2 and a half miles with no break/walking
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
